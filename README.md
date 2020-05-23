@@ -1,1 +1,1 @@
-# Certification-course-on-Data-Security-awareness-
+# Certification-course-on-Digital-Security-awareness-
